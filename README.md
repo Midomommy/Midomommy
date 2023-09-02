@@ -12,7 +12,6 @@ Midomommy is Suzi, I'm Suzi. In fact, Mido is my lovely dog daughter.
 
 ## 你可以在這裡找到我
 - 我的網站：https://suziamazing.com/
-- 我的部落格（文學、音樂、影劇）：https://vocus.cc/user/@suzi0713
 - LinkedIn：https://www.linkedin.com/in/tinasue165/
 - CakeResume：https://www.cakeresume.com/me/tinasue165
 
